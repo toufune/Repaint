@@ -18,7 +18,7 @@ MIT LICENSEに定められた以上の使用は**認められません。**
 
 # SNS
 
-twitter: [https://twitter.com/kr_tukimi](url)
+twitter: [https://twitter.com/kr_tukimi](https://twitter.com/kr_tukimi)
 
 リペイントと一緒に快適な空の旅をお楽しみください。
 
