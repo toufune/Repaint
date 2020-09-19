@@ -7,7 +7,7 @@ kr-tukimiです。
 
 昔のリペイントが欲しくなったら、ぜひいらしてください！
 
-DLはこちら: [https://forums.x-plane.org/index.php?/profile/934080-tukimi/](url)
+DLはこちら: [https://forums.x-plane.org/index.php?/profile/934080-tukimi/](https://forums.x-plane.org/index.php?/profile/934080-tukimi/)
 
 
 # 注意
